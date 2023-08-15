@@ -5,4 +5,4 @@ Repository ini digunakan sebagai sayembara pencarian volunter untuk pembuatan ap
 
 Berikut Daftar yang diterima:
 
--Oon Simalakama, oo.or.id
+-Ilham, Linkedlink, www.linkedlin.com/ilham
